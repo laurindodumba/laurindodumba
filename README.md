@@ -1,4 +1,4 @@
-### Olá! Eu sou o Laurindo Dumba, formado em engenharia de controle e automação, migrei para área de tecnologia no ano de 2021 através do programa de capacitação de traine aonde tive treinamento e direcionamento para a área de tecnologia da informação.
+### Olá! Eu sou o Laurindo Dumba, formado em engenharia de controle e automação, migrei para área de tecnologia através do programa de capacitação de traine aonde tive treinamento e direcionamento para a área de tecnologia da informação.
 
 
 
